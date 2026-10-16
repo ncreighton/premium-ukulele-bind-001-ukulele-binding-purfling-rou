@@ -1,0 +1,2 @@
+# premium-ukulele-bind-001-ukulele-binding-purfling-rou
+Struggling to get perfect binding and purfling channels on your ukulele without wasting expensive wood or making costly routing mistakes? This Notion template turns your project into a repeatable, zero-guesswork process.  Instead of scattered notes or messy spreadsheets, you get a structured workshop that guides you through every routing step—from
